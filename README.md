@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Ivanch3g
 - 👀 I’m interested in .|||
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate bgujhk
+- 💞️ I’m looking to collaborate енрткертер
 - 📫 How to reach me ..yrherasndhgtrh
 - 😄 Pronouns: .prg3213g
 - ⚡ Fun fact: rgrfg
